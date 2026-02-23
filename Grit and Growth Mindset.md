@@ -14,6 +14,7 @@ Instead of fearing failure, you see it as a chance to learn and get better.
 
 Internal Locus of Control means believing your choices shape your results.
 The main idea is to focus on what you can control instead of blaming situations or others.
+
 ---
 
 ## 4. How to Build a Growth Mindset
